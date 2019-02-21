@@ -3,92 +3,69 @@
 <p style = "font-family:courier;font-size:16px;">
         
    Shoutout to gt the nigger & Carl
-         
-        
-  ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND))
-   
-   
-   Welcome to the site of pictures of real vasectomies!!! 
- 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<a href="http://www.mountainyahoos.com/SkiResorts/Mascots/TheCanyons-UT_Mascot-Murdock_KS_IMG_0804_680x921.jpg">o text</a>
+  <ul>
+  <li>((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND))</li>
+  <li></li>
+  <li> Welcome to the site of pictures of real vasectomies!!! </li>
+  </ul> 
+  <ul>
+  <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+        <li></li>
+  <li></li>
+  <li></li>
+ <p style = "font-family:courier;font-size:1px;">
+ <a href="http://www.mountainyahoos.com/SkiResorts/Mascots/TheCanyons-UT_Mascot-Murdock_KS_IMG_0804_680x921.jpg">o </a>
+         </ul> 
