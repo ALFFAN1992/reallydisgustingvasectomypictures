@@ -1,3 +1,18 @@
+<!DOCTYPE html>
+<html>
+   <head>
+      <title>HTML Font</title>
+   </head>
+
+   <body>
+      <h1>Our Products</h1>
+      <p style = "font-family:georgia,garamond,serif;font-size:16px;font-style:italic;">
+         This is demo text
+      </p>
+   </body>
+   
+</html>
+
 Shoutout to gt the nigger
 
 Shoutout to carl
