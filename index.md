@@ -2,10 +2,11 @@
 
 <p style = "font-family:courier;font-size:16px;">
         
-        Shoutout to gt the nigger & Carl
+   Shoutout to gt the nigger & Carl
          
         
-Welcome to the site of pictures of real vasectomies!!! 
+  ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND))
+    Welcome to the site of pictures of real vasectomies!!! 
  
 
 
