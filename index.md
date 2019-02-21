@@ -2,12 +2,42 @@
 
 <p style = "font-family:courier;font-size:16px;">
         
-   Shoutout to gt the nigger & Carl
-   &emsp
-  ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND))
-
-  Welcome to the site of pictures of real vasectomies!!! 
-  </ul><ul style="list-style-type:;">
+   Shoutout to gt the nigger & Carl <br>((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND)) <br>Welcome to the site of pictures of real vasectomies!!! 
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 
  
  <p style = "font-family:courier;font-size:1px;">
