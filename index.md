@@ -7,7 +7,7 @@
   <li>((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND))</li>
   <li></li>
   <li> Welcome to the site of pictures of real vasectomies!!! </li>
-  </ul> 
+  </ul><ul style="list-style-type:none;">
   <ul>
   <li></li>
   <li></li>
