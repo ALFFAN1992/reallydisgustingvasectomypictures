@@ -1,8 +1,8 @@
- <p style = "font-family:georgia,garamond,serif;font-size:16px;font-style:italic;">
+ <p style = "font-family:courier;font-size:16px;">
          Shoutout to gt the nigger
+ 
          Shoutout to carl
       </p>
-   </body>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/d4bwDoFXR08" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
