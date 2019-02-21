@@ -6,7 +6,9 @@
          
         
   ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND))
-    Welcome to the site of pictures of real vasectomies!!! 
+   
+   
+   Welcome to the site of pictures of real vasectomies!!! 
  
 
 
