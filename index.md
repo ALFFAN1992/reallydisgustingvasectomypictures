@@ -85,19 +85,4 @@ Shoutout to carl
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 <a href="http://www.mountainyahoos.com/SkiResorts/Mascots/TheCanyons-UT_Mascot-Murdock_KS_IMG_0804_680x921.jpg">o text</a>
