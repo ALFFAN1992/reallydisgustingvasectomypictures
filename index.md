@@ -11,7 +11,8 @@
         Shoutout to gt the nigger & Carl
 <br>
 <br>
-<img src="https://imgur.com/KY9zFlq">
+<img src="">
+   <blockquote class="imgur-embed-pub" lang="en" data-id="KY9zFlq" data-context="false"><a href="//imgur.com/KY9zFlq"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
 <br>
 <br>
 <br>
