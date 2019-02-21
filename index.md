@@ -4,8 +4,8 @@
         
         Shoutout to gt the nigger & Carl
          
-         
-  Welcome to the site of pictures of real vasectomies!!! 
+        
+Welcome to the site of pictures of real vasectomies!!! 
  
 
 
