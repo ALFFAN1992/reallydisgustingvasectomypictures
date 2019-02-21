@@ -3,13 +3,15 @@
 <p style = "font-family:courier;font-size:16px;">
    <br>
    ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND)) 
-   <br>
-      Welcome to the site of pictures of real vasectomies!!! 
+<br>
+<br> 
+   Welcome to the site of pictures of real vasectomies!!! 
 <br>
 <br>
-        Shoutout to gt the nigger & Carl 
+        Shoutout to gt the nigger & Carl
 <br>
 <br>
+<img src="https://imgur.com/KY9zFlq">
 <br>
 <br>
 <br>
