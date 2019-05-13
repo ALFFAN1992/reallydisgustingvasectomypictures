@@ -1,5 +1,3 @@
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d4bwDoFXR08" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
 <p style = "font-family:courier;font-size:16px;">
    <br>
    ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND)) 
@@ -8,7 +6,7 @@
    Welcome to the site of pictures of real vasectomies!!! 
 <br>
 <br>
-        Shoutout to gt the nigger & Carl
+        Shoutout to Carl
 <br>
 <br>
 <img src="https://i.imgur.com/KY9zFlq.gif">
