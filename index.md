@@ -7,9 +7,8 @@
 <br>
 <br>
 <br>
-<br><a href="relatblcomix.html">RELATBL COMIX
+<a href="relatblcomix.html">RELATBL COMIX
 <br>
-<img src="https://i.imgur.com/KY9zFlq.gif">
 <br>
 <br>
 <br>
