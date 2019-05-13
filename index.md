@@ -8,9 +8,12 @@
 <br>
 List of real pictures, real stories: (IN ORDER)
 <br>
+<br>
+   <a href="articles.html">REAL STORIES
+<br>
+<br>
 <a href="relatblcomix.html">RELATBL COMIX
 <br>
-<a href="articles.html">REAL STORIES
 <br>
 <br>
 <br>
