@@ -9,7 +9,7 @@
 List of real pictures, real stories: (IN ORDER)
 <br>
 <br>
-   <a href="articles.html">REAL STORIES
+   <a href="articles.html">MASLOW'S PYRAMID AND 2010s REVIEW
 <br>
 <br>
 <a href="relatblcomix.html">RELATBL COMIX
