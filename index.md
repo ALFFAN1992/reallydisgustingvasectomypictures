@@ -6,7 +6,7 @@
    Welcome to the site of pictures of real vasectomies!!! 
 <br>
 <br>
-LIST OF REAL STORIES, REAL PICTURES:(IN ORDER)
+List of real pictures, real stories: (IN ORDER)
 <br>
 <a href="relatblcomix.html">RELATBL COMIX
 <br>
