@@ -6,7 +6,6 @@
    Welcome to the site of pictures of real vasectomies!!! 
 <br>
 <br>
-        Shoutout to Carl
 <br>
 <br>
 <img src="https://i.imgur.com/KY9zFlq.gif">
