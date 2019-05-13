@@ -10,6 +10,7 @@ List of real pictures, real stories: (IN ORDER)
 <br>
 <a href="relatblcomix.html">RELATBL COMIX
 <br>
+<a href="articles.html">ARTICLES 
 <br>
 <br>
 <br>
