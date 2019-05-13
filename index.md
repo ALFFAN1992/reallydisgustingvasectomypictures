@@ -6,7 +6,7 @@
    Welcome to the site of pictures of real vasectomies!!! 
 <br>
 <br>
-List of real pictures, real stories: (IN ORDER)
+List of real pictures, real stories from the akashic records: (IN ORDER)
 <br>
 <br>
    <a href="articles.html">MASLOW'S PYRAMID AND 2010s REVIEW
