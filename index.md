@@ -7,7 +7,7 @@
 <br>
 <br>
 <br>
-<br><br><br><a href="lordparsons.html">RELATBL COMIX
+<br><br><br><a href="relatblcomix.html">RELATBL COMIX
 <br>
 <img src="https://i.imgur.com/KY9zFlq.gif">
 <br>
