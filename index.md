@@ -9,12 +9,13 @@
 List of real pictures, real stories from the akashic records: (IN ORDER)
 <br>
 <br>
-   <a href="articles.html">MASLOW'S PYRAMID AND 2010s REVIEW
+<a href="articles.html">MASLOW'S PYRAMID AND 2010s REVIEW
+<br>
+<br>
+<a href="madagascarquest.html">MADAGASCARQUEST
 <br>
 <br>
 <a href="relatblcomix.html">RELATBL COMIX
-<br>
-<br>
 <br>
 <br>
 <br>
