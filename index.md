@@ -1,3 +1,4 @@
+<img src="disco.gif" alt="Tempname">
 <p style = "font-family:courier;font-size:16px;">
    <br>
    ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND)) 
