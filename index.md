@@ -12,6 +12,7 @@ List of real pictures, real stories from the akashic records: (IN ORDER)
 <a href="relatblcomix.html">RELATBL COMIX
 <br>
 <br>
+<a href="stories.html">STORIES
 <br>
 <br>
 <br>
