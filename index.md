@@ -1,4 +1,5 @@
 <p style = "font-family:courier;font-size:16px;">
+   You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be seen here! hahahahaha!!!!!!!!!!!! :D
    <br>
    ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND)) 
 <br>
