@@ -17,6 +17,7 @@ List of real pictures, real stories: (IN ORDER)
 <a href="stories.html">STORIES
 <br>
 <br>
+<a href="Large_Scene.html">LARGE_SCENE
 <br>
 <br>
 <br>
