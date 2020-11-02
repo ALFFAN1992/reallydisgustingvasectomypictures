@@ -11,10 +11,10 @@
 List of real pictures, real stories: (IN ORDER)
 <br>
 <br>
-<a href="relatblcomix.html">RELATBL COMIX MK I
+<a href="relatblcomix.html">RELATBL COMIX MK I 
 <br>
 <br>
-<a href="relatblcomix.html">RELATBL COMIX MK II
+<a href="relatblcomix2.html">RELATBL COMIX MK II
 <br>
 <br>
 <a href="stories.html">STORIES
