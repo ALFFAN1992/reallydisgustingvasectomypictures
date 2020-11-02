@@ -48,6 +48,6 @@ List of real pictures, real stories from the akashic records: (IN ORDER)
 <br>
    
  
- <p style = "font-family:courier;font-size:1px;">
+ <p style = "font-family:MS UI Gothic;font-size:8px;">
  <a href="http://www.mountainyahoos.com/SkiResorts/Mascots/TheCanyons-UT_Mascot-Murdock_KS_IMG_0804_680x921.jpg">click here for picture of moose </a>
          </ul> 
