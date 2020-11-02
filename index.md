@@ -1,5 +1,5 @@
 <p style = "font-family:MS UI Gothic;font-size:17px;">
-   You've been tricked!!!!!!!!!!!!!!!!! I must inform you there are no pictures of vasectomies to be seen here! hahahahaha!!!!!!!!!!!! :D
+   You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be looked at here! hahahahaha!!!!!!!!!!!! :D
 <br>
 <br>
    ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND)) 
