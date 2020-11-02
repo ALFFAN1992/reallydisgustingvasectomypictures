@@ -20,13 +20,13 @@ List of real pictures, real stories: (IN ORDER)
 <a href="stories.html">STORIES
 <br>
 <br>
+(ADD HUB PAGE FOR INFORMATION HERE, CALL IT REAL STORIES)
+<br>
+<br>
 <a href="Large_Scene.html">LARGE SCENE
 <br>
 <br>
-<br>
-<br>
-<br>
-<br>
+Temporary Name for Page Large Scene
 <br>
 <br>
 <br>
