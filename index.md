@@ -11,7 +11,7 @@
 List of real pictures, real stories: (IN ORDER)
 <br>
 <br>
-<a href="relatblcomix.html">RELATBL COMIX
+<a href="relatblcomix.html">RELATBL COMIX MK I
 <br>
 <br>
 <a href="stories.html">STORIES
