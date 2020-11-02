@@ -26,7 +26,7 @@ List of real pictures, real stories: (IN ORDER)
 <a href="Large_Scene.html">LARGE SCENE
 <br>
 <br>
-Temporary Name for Page Large Scene
+<a href="Links.html">LINKS
 <br>
 <br>
 <br>
