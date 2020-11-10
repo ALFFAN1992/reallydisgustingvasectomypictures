@@ -29,6 +29,7 @@ List of real pictures, real stories: (IN ORDER)
 <a href="Links.html">LINKS
 <br>
 <br>
+<iframe style="width: 182px; height: 358px; border: 1px solid #ddd;" scrolling="no" src="https://www.islamicfinder.org/prayer-widget/"> </iframe>
 <br>
 <br>
 <br>
