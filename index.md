@@ -26,7 +26,7 @@ List of real pictures, real stories: (IN ORDER)
 (ADD HUB PAGE FOR INFORMATION HERE, CALL IT REAL STORIES)
 <br>
 <br>
-<a href="Large_Scene.html">LARGE SCENE
+<a href="drawings.html">DRAWINGS
 <br>
 <br>
 <br>
