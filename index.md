@@ -8,7 +8,7 @@
    Welcome to the site.
 <br>
 <br>
-List of real pictures, real stories: (IN ORDER)
+List of real pictures, real stories: (IN ORDER) 
 <br>
 <br>
 <a href="religion.html">VENERATION
