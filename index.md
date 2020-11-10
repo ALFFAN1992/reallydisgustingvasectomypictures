@@ -29,7 +29,6 @@ List of real pictures, real stories: (IN ORDER)
 <a href="Large_Scene.html">LARGE SCENE
 <br>
 <br>
-<a href="Links.html">LINKS
 <br>
 <br>
 <br>
