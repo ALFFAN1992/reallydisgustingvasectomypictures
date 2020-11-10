@@ -11,7 +11,7 @@
 List of real pictures, real stories: (IN ORDER) 
 <br>
 <br>
-<a href="religion.html">VENERATION
+<a href="prayer.html">PRAYER
 <br>
 <br>
 <a href="relatblcomix.html">RELATBL COMIX MK I 
