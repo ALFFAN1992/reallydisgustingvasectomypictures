@@ -1,5 +1,5 @@
+✝
 <p style = "font-family:MS UI Gothic;font-size:17px;">
-✝	
 <br>
 You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be looked at here! hahahahaha!!!!!!!!!!!! :D
 <br>
