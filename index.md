@@ -1,3 +1,4 @@
+<p style = "font-family:MS UI Gothic;font-size:18px;">
 ✝
 <p style = "font-family:MS UI Gothic;font-size:17px;">
 <br>
