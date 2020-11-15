@@ -1,11 +1,13 @@
 <p style = "font-family:MS UI Gothic;font-size:17px;">
-   You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be looked at here! hahahahaha!!!!!!!!!!!! :D
+✝	
+<br>
+You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be looked at here! hahahahaha!!!!!!!!!!!! :D
 <br>
 <br>
-   ((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND)) 
+((REAL PICTURES. REAL STORIES. DEMOTIVITATIONALS FOR THE MIND)) 
 <br>
 <br> 
-   Welcome to the site.
+Welcome to the site.
 <br>
 <br>
 List of real pictures, real stories: (IN ORDER) 
