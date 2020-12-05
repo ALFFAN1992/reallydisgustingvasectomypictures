@@ -2,12 +2,9 @@
 ✝
 <p style = "font-family:MS UI Gothic;font-size:17px;">
 <br>
-<link rel="shortcut icon" href="http://reallydisgustingvasectomypictures.net/favicon.ico" />
-<link rel="shortcut icon" href="favicon.ico" />
-<link rel="shortcut icon" href="ConstantinopoleIcon.png" />
-<link rel="icon" type="image/png" href="http://reallydisgustingvasectomypictures.net/favicon.ico" sizes="32x32">
- <link rel="icon" type="image/png" href="favicon.ico" sizes="32x32">
- <link rel="icon" type="image/png" href="ConstantinopoleIcon.png" sizes="32x32">
+<link rel="icon" type="image/png" href="http://reallydisgustingvasectomypictures.net/favicon.ico" sizes="16x16">
+ <link rel="icon" type="image/png" href="favicon.ico" sizes="16x16">
+ <link rel="icon" type="image/png" href="ConstantinopoleIcon2.png" sizes="16x16">
 You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be looked at here! hahahahaha!!!!!!!!!!!! :D
 <br>
 <br>
