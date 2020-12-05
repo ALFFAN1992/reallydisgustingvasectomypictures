@@ -2,6 +2,7 @@
 ✝
 <p style = "font-family:MS UI Gothic;font-size:17px;">
 <br>
+<title> Test </title>
 <link rel="shortcut icon" type="image/png" href="ConstantinopoleIcon.png"/>
 You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be looked at here! hahahahaha!!!!!!!!!!!! :D
 <br>
@@ -31,6 +32,7 @@ List of real pictures, real stories: (IN ORDER)
 <br>
 <br>
 <a href="drawings.html">DRAWINGS</a>
+<br>
 <br>
 <br>
 <br>
