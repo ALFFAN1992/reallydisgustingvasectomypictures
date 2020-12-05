@@ -2,7 +2,7 @@
 ✝
 <p style = "font-family:MS UI Gothic;font-size:17px;">
 <br>
-<link rel="shortcut icon" type="image/png" href="ConstantinopoleIcon.png"/>
+<link rel="shortcut icon" href="http://reallydisgustingvasectomypictures.net/favicon.ico" />
 You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be looked at here! hahahahaha!!!!!!!!!!!! :D
 <br>
 <br>
