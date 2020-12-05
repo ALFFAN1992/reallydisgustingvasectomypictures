@@ -2,10 +2,6 @@
 ✝
 <p style = "font-family:MS UI Gothic;font-size:17px;">
 <br>
-<link rel="icon" type="image/png" href="http://reallydisgustingvasectomypictures.net/favicon.ico" sizes="16x16">
- <link rel="icon" type="image/png" href="http://reallydisgustingvasectomypictures.net/ConstantinopoleIcon2.png" sizes="16x16">
- <link rel="icon" type="image/png" href="favicon.ico" sizes="16x16">
- <link rel="icon" type="image/png" href="ConstantinopoleIcon2.png" sizes="16x16">
 You've been tricked!!!!!!!!!!!!!!!!! There are no pictures of vasectomies to be looked at here! hahahahaha!!!!!!!!!!!! :D
 <br>
 <br>
