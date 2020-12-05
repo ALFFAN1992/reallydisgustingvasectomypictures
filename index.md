@@ -14,22 +14,22 @@ Welcome to the site.
 List of real pictures, real stories: (IN ORDER) 
 <br>
 <br>
-<a href="prayer.html">PRAYER
+<a href="prayer.html">PRAYER</a>
 <br>
 <br>
-<a href="relatblcomix.html">RELATBL COMIX MK I 
+<a href="relatblcomix.html">RELATBL COMIX MK I</a>
 <br>
 <br>
-<a href="relatblcomix2.html">RELATBL COMIX MK II
+<a href="relatblcomix2.html">RELATBL COMIX MK II</a>
 <br>
 <br>
-<a href="stories.html">STORIES
+<a href="stories.html">STORIES</a>
 <br>
 <br>
-<a href="real_stories.html">REAL STORIES
+<a href="real_stories.html">REAL STORIES</a>
 <br>
 <br>
-<a href="drawings.html">DRAWINGS
+<a href="drawings.html">DRAWINGS</a>
 <br>
 <br>
 <br>
