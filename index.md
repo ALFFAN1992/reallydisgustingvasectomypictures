@@ -14,7 +14,7 @@ Welcome to the site.
 List of real pictures, real stories: (IN ORDER) 
 <br>
 <br>
-<a href="prayer.html">PRAYER</a>
+<a href="prayer.html">Reminder</a>
 <br>
 <br>
 <a href="relatblcomix.html">RELATBL COMIX MK I</a>
@@ -23,13 +23,13 @@ List of real pictures, real stories: (IN ORDER)
 <a href="relatblcomix2.html">RELATBL COMIX MK II</a>
 <br>
 <br>
-<a href="stories.html">STORIES</a>
+<a href="stories.html">Stories</a>
 <br>
 <br>
-<a href="">REAL STORIES</a>
+<a href="articles.html">Articles</a>
 <br>
 <br>
-<a href="drawings.html">DRAWINGS</a>
+<a href="drawings.html">Drawings</a>
 <br>
 <br>
 <br>
