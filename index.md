@@ -26,7 +26,7 @@ List of real pictures, real stories: (IN ORDER)
 <a href="stories.html">STORIES</a>
 <br>
 <br>
-<a href="real_stories.html">REAL STORIES</a>
+<a href="">REAL STORIES</a>
 <br>
 <br>
 <a href="drawings.html">DRAWINGS</a>
